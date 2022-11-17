@@ -1,23 +1,23 @@
-<img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/azimvau.gif" width="120" height="120" align="left">
+<img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/photo_2022-09-29_12-38-25.png" width="120" height="120" align="left">
 <center>
   
   
   
    ## * MY SOCIAL MEDIA : <br>
-<a href="https://Instagram.com/azimmahmud143" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/instagram.png" alt="alt text" width="25" height="25"></a> 
-<a href="https://t.me/mrerror69"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/telegram.png" alt="alt text" width="25" height="25"></a>
-<a href="https://www.facebook.com/azimvau69" target="_blank"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/facebook.png" alt="alt text" width="25" height="25"></a> <a href="https://youtube.com/MrError69"><img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/youtube.png" alt="alt text" width="25" height="25"></a> 
+<a href="https://www.instagram.com/techboy237.cm/" target="_blank"><img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/instagram.png" alt="alt text" width="25" height="25"></a> 
+<a href="https://t.me/techboy237"><img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/telegram.png" alt="alt text" width="25" height="25"></a>
+<a href="https://web.facebook.com/techboy237" target="_blank"><img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/facebook.png" alt="alt text" width="25" height="25"></a> <a href="https://youtube.com/Techboy237"><img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/youtube_logo.jpg" alt="alt text" width="25" height="25"></a> 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;
   
 ____Programming And Memes____
 
-Want to contact <a href="https://github.com/Azim-vau"><b>Mr. Error </a> ?</br><br>
-<img src="https://github.com/Azim-vau/Azim-vau/blob/main/IMAGE/contact.png" alt="alt text" width="25" height="25"> <br>
-CONTACT : <p>errorazim@gmail.com</p>  <br> <br> 
+Want to contact <a href="https://github.com/fowahcreation"><b>Techboy237 </a> ?</br><br>
+<img src="https://github.com/fowahcreation/Techboy237-main/blob/main/IMAGE/contact.png" alt="alt text" width="25" height="25"> <br>
+CONTACT : <p>Techboy237.cm@gmail.com</p>  <br> <br> 
 
 
 <div align="center">
-<h2> MR. ERROR IS HERE </h2>
+<h2> TECHBOY237 IS HERE </h2>
 </div> <br>
   
   
